@@ -1,2 +1,2 @@
 # Historyspeaks
-tiktok-developers-site-verification=bHs263NdsC84kwmILcrqZy0yes29zcqF
+tiktok-developers-site-verification=XxWaxBefsHVcwLDkdIR4hhotlJl3aBPk
